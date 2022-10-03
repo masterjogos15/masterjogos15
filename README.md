@@ -3,3 +3,5 @@
 -Gosto de jogar jogos  mobile.
 
 -Pratico volei e futebol.
+
+-Gosto de ouvir diversas musicas.
